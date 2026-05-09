@@ -1,4 +1,4 @@
-
+custom Tableau Desktop for macOS Integration | data-visualization + custom-functions offers the most advanced Tableau Desktop for macOS integration, with data-visualization and
 
 
 
